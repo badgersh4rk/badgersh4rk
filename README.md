@@ -1,4 +1,8 @@
 <p align="center">
+<img width="100" src="https://i.pinimg.com/originals/81/41/23/8141237eb5cab0eb891f81034ef347d4.gif">
+</p>
+
+<p align="center">
   <img width="100" src="https://gifcity.carrd.co/assets/images/gallery56/1e005f18.png?v=dc8076d6">
 </p>
 
@@ -11,7 +15,7 @@
 
 
 <p align="center">
-  <img width="200" src="https://i.postimg.cc/G2Wf8Mmy/88c449da-fc04-43aa-a0ff-031f0323b8b6-removebg-preview.png">
+  <img width="110" src="https://pixelcat.neocities.org/stamp_mimikyu.png">
 </p>
 
 <p align="center">
@@ -22,22 +26,14 @@
 </p>
 
 <p align="center">
-  <img width="125" src="https://i.pinimg.com/originals/53/b9/71/53b971a00033f8a9ba7672e32b0e7260.png">
+  <img width="100" src="https://adriansblinkiecollection.neocities.org/stamps/d65.png">
 
   <p align="center">
 <b>< 𝟑</b>
 </p>
 
 <p align="center">
-<img width="100" src="https://i.pinimg.com/originals/81/41/23/8141237eb5cab0eb891f81034ef347d4.gif">
-</p>
-
-<p align="center">
   . please use <b><i> tone indicators </i></b> .
-</p>
-
-<p align="center">
-  <img width="100" src="https://cdn3.emoji.gg/emojis/97655-pink-ribbon.gif">
 </p>
 
 <p align="center">
@@ -46,4 +42,9 @@
 
 <p align="center">
   <img width="100" src="https://gifcity.carrd.co/assets/images/gallery59/da549af8.png?v=dc8076d6">
+</p>
+
+
+<p align="center">
+  <img width="100" src="https://64.media.tumblr.com/a6f1ca960064cb5dcd6b07e27ffecc7c/tumblr_ohj9eu9mO01vkpk4fo2_250.gifv">
 </p>
