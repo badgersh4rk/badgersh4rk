@@ -1,5 +1,5 @@
 <p align="center">
-<img width="700" src="https://pbs.twimg.com/media/FrY6dypXoAAe8Z9?format=jpg&name=large">
+<img width="500" src="https://media.discordapp.net/attachments/1272332438323990548/1290099670839857212/Untitled29_20240929185514.png?ex=66fb3a72&is=66f9e8f2&hm=2d2e9def8726e8aa44cc9fbb73cbf16dae32fecf9cb4fec6747081c06f19d5dc&=&format=webp&quality=lossless">
 </p>
 
 <p align="center">
@@ -40,5 +40,5 @@
 
 
 <p align="center">
-  <img width="700" src="https://i.postimg.cc/pXP5zrTP/Untitled-design-1.png">
+  <img width="700" src="https://media.discordapp.net/attachments/1272332438323990548/1290100147375570996/Untitled30_20240929185701.png?ex=66fb3ae4&is=66f9e964&hm=f0cf2b8baefd224a64caeb4da8a1b29b4b50c1a03dc0e2d22c721af070b61526&=&format=webp&quality=lossless&width=550&height=291">
 </p>
