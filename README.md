@@ -1,5 +1,5 @@
 <p align="center">
-<img width="100" src="https://i.pinimg.com/originals/81/41/23/8141237eb5cab0eb891f81034ef347d4.gif">
+<img width="700" src="https://pbs.twimg.com/media/FrY6dypXoAAe8Z9?format=jpg&name=large">
 </p>
 
 <p align="center">
@@ -13,9 +13,8 @@
 <i> feel free to cuddle , will be nv / sv most of the time. </i>
 </p>
 
-
 <p align="center">
-  <img width="110" src="https://pixelcat.neocities.org/stamp_mimikyu.png">
+<img width="100" src="https://laboratory.neocities.org/stamps/blue/56.gif">
 </p>
 
 <p align="center">
@@ -26,8 +25,7 @@
 </p>
 
 <p align="center">
-  <img width="100" src="https://adriansblinkiecollection.neocities.org/stamps/d65.png">
-
+  <img width="100" src="https://gifcity.carrd.co/assets/images/gallery59/da549af8.png?v=dc8076d6">
   <p align="center">
 <b>< 𝟑</b>
 </p>
@@ -40,11 +38,7 @@
 <i> : 3 </i>
 </p>
 
-<p align="center">
-  <img width="100" src="https://gifcity.carrd.co/assets/images/gallery59/da549af8.png?v=dc8076d6">
-</p>
-
 
 <p align="center">
-  <img width="100" src="https://64.media.tumblr.com/a6f1ca960064cb5dcd6b07e27ffecc7c/tumblr_ohj9eu9mO01vkpk4fo2_250.gifv">
+  <img width="700" src="https://i.pinimg.com/564x/1d/01/e0/1d01e066234b76849750a9e7b2dd33cf.jpg">
 </p>
