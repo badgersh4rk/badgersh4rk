@@ -25,7 +25,7 @@
 </p>
 
 <p align="center">
-  <img width="100" src="https://gifcity.carrd.co/assets/images/gallery59/da549af8.png?v=dc8076d6">
+  <img width="100" src="[![Untitled-design-1.png](https://i.postimg.cc/pXP5zrTP/Untitled-design-1.png)](https://postimg.cc/nMwLtHBW)">
   <p align="center">
 <b>< 𝟑</b>
 </p>
@@ -40,5 +40,5 @@
 
 
 <p align="center">
-  <img width="700" src="https://i.pinimg.com/564x/1d/01/e0/1d01e066234b76849750a9e7b2dd33cf.jpg">
+  <img width="700" src="https://i.postimg.cc/pXP5zrTP/Untitled-design-1.png">
 </p>
