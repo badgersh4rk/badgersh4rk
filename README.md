@@ -3,6 +3,10 @@
 </p>
 
 <p align="center">
+<b> . 𖹭 ◟<a href="https://badgershark.atabook.org/">sign my atabook !</a> </b>╭ ♰
+</p>
+
+<p align="center">
   <img width="100" src="https://gifcity.carrd.co/assets/images/gallery56/1e005f18.png?v=dc8076d6">
 </p>
 
@@ -10,7 +14,7 @@
 <b> please don't inspo off my skins ! </b>
 </p>
 <p align="center">
-<i> feel free to cuddle , will be nv / sv most of the time. </i>
+<i> feel free to cuddle / hide , will be nv / sv most of the time. </i>
 </p>
 
 <p align="center">
